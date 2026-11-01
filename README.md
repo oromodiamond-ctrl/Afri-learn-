@@ -1,2 +1,2 @@
-# Afri-learn-
+# afri-learn-
 Education 
