@@ -1,2 +1,0 @@
-# afri-learn-
-Education 
